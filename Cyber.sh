@@ -4,7 +4,7 @@
 # Thnks You All My Friends me.       #
 # Thanks All Member BCC :            #
 # Leader : M.Daffa                   #
-# CO Founder :Rendy_attack           #
+# CO Founder :Cyber_attack           #
 # CO Leader : Ridwan                 #
 # CO :Aril syaputra                  #
 ######################################
